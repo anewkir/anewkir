@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 
 ⚡I have a great passion for expanding my knowledge about different programming languages and technologies and staying up-to-date with the latest updates. As a life long learner, its intresting to learn about new open source technologies and how they work.
 
-😄 Outside of technology, I enjoy hanging out with friends and family, playing videogames, and reading manga. My favorite games are always kirby games and currently Jujitsu kaisen is my favorite manga right now.
+😄 Apart from technology, I take pleasure in spending time with my loved ones, playing video games, and delving into manga. Kirby games hold a special place in my heart and currently, my top pick for manga is Jujitsu Kaisen.
